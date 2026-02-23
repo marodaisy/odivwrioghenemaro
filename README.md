@@ -1,2 +1,0 @@
-# odivwrioghenemaro
-Data Analysis Portfolio
